@@ -15,7 +15,7 @@
 
 [三毛机场官网注册入口](https://g-3.xn--ehqx7tcnnope.com/#/register?code=YgrqYslp)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 # 目录
 
@@ -375,7 +375,7 @@ iOS 客户端通常需要用户自行购买或通过官方渠道获取。
 
 [三毛机场官方注册入口](https://g-3.xn--ehqx7tcnnope.com/#/register?code=YgrqYslp)
 
-如果访问不了，可以[点击此处](https://aaa.fwh.is/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 使用提示：
 
